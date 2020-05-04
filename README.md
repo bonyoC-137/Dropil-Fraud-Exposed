@@ -23,11 +23,13 @@
 
 ![](assets/README-92feb876.png)<br>
 <br>
-![](assets/README-73b0c63d.png)<br>
-(You will not find this on twitter, because the Dropil team constantly is deleting and covering its tracks.)<br>
+![](assets/README-73b0c63d.png)
+
+##### You will not find this on twitter, because the Dropil team constantly is deleting and covering its tracks.)<br>
+
 <br>
 <br>
-Poor Dex has vanish from this world, like a ghost...<br>
+Poor Dex has vanished from this world, like a ghost...<br>
 ![](assets/README-d4211be6.png) <!-- .element height="20%" width="20%" --> ![](assets/README-8b235280.png) <!-- .element height="20%" width="20%" -->
 
 <br>
