@@ -26,7 +26,7 @@ the Dropil team stated that has collected _54 millions $_ after the ICO was over
 Which _54 millions dollars_ will fund "the trading bot" Dex.<br>
 ![](assets/README-73b0c63d.png)<br><br>
 ![](assets/README-b9c645c3.png)<br>
-**"sufficient capital to allow maximum diversification"** !!!<br>
+**_"sufficient capital to allow maximum diversification"_** !!!<br><br><br>
 ![](assets/README-1e23556b.png)<br><br><br>
 
 ## What was Dex in reality ?<br>
@@ -34,14 +34,14 @@ Which _54 millions dollars_ will fund "the trading bot" Dex.<br>
 _( - Vision, hallucination, phantasm, fraud, sham, falsify, charlatan - )_<br>
 
 ![](assets/README-d5e0dda0.png)<br>
-![](assets/README-24c87cad.png)<br>
+![](assets/README-24c87cad.png) Dex never made any profits by trading whatsoever !!!<br>
 ![](assets/README-6a905309.png)<br>
 
 ### Dropil and its founders claimed that Dex would generate profits that would be distributed to investors as additional DROPs every 15 days.<br>
 
 ![](assets/README-163b669d.png)<br>
 <br>
-![](assets/README-e932bbc6.png) Dex never made any profits by trading whatsoever !!!<br>
+![](assets/README-e932bbc6.png)<br>
 ![](assets/README-398fc2d8.png)<br><br>
 <br>
 
