@@ -15,10 +15,12 @@
 
 `("Truth" is most often used to mean being in accord with fact or reality)`
 
-#### What is Dex in reality ?
+#### What is Dex ?
 
 ![](assets/README-450ec01a.png)<br>
 ![](assets/README-10ba05ef.png)<br>
+
+#### What is Dex in reality ?<br>
 
 #### Dropil and its founders claimed that Dex would generate profits that would be distributed to investors as additional DROPs every 15 days.<br>
 
