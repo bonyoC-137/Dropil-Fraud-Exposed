@@ -62,7 +62,8 @@ You have to get to know the Dropil team better to understand why this is very, v
 ![](assets/README-e932bbc6.png)<br>
 ![](assets/README-398fc2d8.png)<br>
 <br><br>
-Only with a single product ? This single product the trading Bot - Dex ! WoW ! Amazing ! Sadly i have to say my opinion, that no matter how many products they produce any investor will benefit.<br><br>
+Only with a single product ? This single product **_the trading Bot - Dex_** ! WoW ! Amazing !<br>
+And Sadly i have to share my opinion, that until now as "ex investor" in Dropil sham(project-platform), that no matter how many products they produce and knowing what they have produced already, any positive outcome is under BIG Question and only go-in if you are lucky Pro-Trader and want to test your trading abilities against them.<br><br>
 
 ### In reality, the sale of DROPs during the ICO phase raised less than $1.9 million, not the $54 million claimed.<br>
 
