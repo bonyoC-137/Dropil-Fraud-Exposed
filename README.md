@@ -9,6 +9,7 @@
 
 ### The story - "trading bot," called Dex
 
-Dropil and its founders claimed that Dex would generate profits that would be distributed to investors as additional DROPs every 15 days. ![](assets/README-163b669d.png)
+Dropil and its founders claimed that Dex would generate profits that would be distributed to investors as additional DROPs every 15 days.<br>
+![](assets/README-163b669d.png)
 
-In reality, the sale of DROPs during the ICO phase raised less than $1.9 million, not the $54 million claimed.
+In reality, the sale of DROPs during the ICO phase raised less than $1.9 million, not the $54 million claimed.<br>
