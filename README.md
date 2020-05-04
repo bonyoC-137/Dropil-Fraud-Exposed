@@ -80,24 +80,26 @@ You shouldn't be !<br>
 
 #### The Dropil team constantly deleting and covering its tracks.<br>
 
+On 28 feb 2020 the "trading bot" called Dex vanished from this world, like a ghost...<br>
+![](assets/README-9bca86e8.png) <!-- .element height="50%" width="50%" --><br>
+![](assets/README-4f057429.png) <!-- .element height="50%" width="50%" --><br><br><br>
+But even now, if We login to the Dex portal.<br>
+Dex seems to be still active and actively trading something, somewhere!<br>
+Even without any funds! Even without being on exchanges! Even without making any trades!<br>
+This is what we should call a real "Technology".<br>
+![](assets/README-cee8cad3.png)<br>
+**Dex is a Unstoppable Force and Nobody can stop it !**<br>
+**Dex just keeps trading !**<br>
+<br>
+Even the SEC does not have jurisdiction over the trading that Dex is doing !<br><br>
+
+<br><br>
+![](assets/README-80484386.png)<br>
+![](assets/README-ab89da7d.png)<br><br>
+<br>
+<br>
 They are still trying to keep this fiasco up and running.<br>
 
 You will ask but how is that possible after so many evidence and facts ?<br>
 
 Even the SEC is currently investigating them and fighting them in court, how is this possible ?<br><br>
-On 28 feb 2020 the "trading bot" called Dex vanished from this world, like a ghost...<br>
-![](assets/README-9bca86e8.png) <!-- .element height="50%" width="50%" --><br>
-![](assets/README-4f057429.png) <!-- .element height="50%" width="50%" --><br><br><br>
-But even now, if We login to the Dex portal.<br>
-Dex seems to be still active and actively trading something, somewhere !<br>
-Dex never stops !<br>
-Even without any funds !<br>
-Even without being on exchanges !<br>
-Even without making any trades !<br>
-This is what we should call a real "Technology".<br>
-![](assets/README-cee8cad3.png)<br>
-**Dex is a unstoppable force and Nobody cant stop it !**<br>
-**Dex just keeps trading !**<br>
-Even the SEC does not have jurisdiction over the trading that Dex is doing !<br><br>
-![](assets/README-80484386.png)<br>
-![](assets/README-ab89da7d.png)<br>
