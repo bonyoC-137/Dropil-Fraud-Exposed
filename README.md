@@ -98,12 +98,8 @@ Dex just cant stop making profits ! 2.06% on Aggressive !<br>
 **Dex is a Unstoppable Force and Nobody can stop it! Dex just keeps trading!**<br><br>
 Even the SEC does not have jurisdiction over the trading that Dex is doing !<br>
 <br>
-
-<br>
-<br>
 ![](assets/README-80484386.png)<br>
 ![](assets/README-ab89da7d.png)<br>
-<br>
 
 <br><br>
 They are still trying to keep this fiasco up and running.<br>
