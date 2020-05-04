@@ -23,7 +23,7 @@ _( according to the white paper and why all the people invest in the platform )_
 ![](assets/README-10ba05ef.png)<br>
 ![](assets/README-3ced58a7.png)<br>
 <br>
-the Dropil team stated that has collected _54 millions $_, after the ICO was over.<br>
+The Dropil team stated that had collected _54 millions $_, after the ICO was over.<br>
 Which _54 millions dollars_ will fund "the trading bot" Dex.<br>
 ![](assets/README-73b0c63d.png)<br>
 <br>
@@ -50,12 +50,13 @@ In reality, proven by facts - Dex NEVER traded on Binance.
 <br>
 <br>
 Aren't you already asking yourself, but how is this possible ?<br>
+For the people, lied since the beginning of this project will be hard to aknowledge the truth.<br>
 <br>
 
 You have to get to know the Dropil team better to understand why is this very, very possible.<br>
 <br>
 
-### Dropil and its founders claimed that Dex would generate profits that would be distributed to investors as additional DROPs every 15 days.<br>
+### Dropil and its founders claimed that Dex would generate profits that would be distributed to investors.<br>
 
 ![](assets/README-163b669d.png)<br><br>
 ![](assets/README-e932bbc6.png)<br>
