@@ -76,13 +76,13 @@ And you should know already that no matter how many products they produce and **
 ![](assets/README-34f89205.jpg)<br><br>
 ![](assets/README-92feb876.png)<br>
 In reality, the sale of DROPs during the ICO phase raised less than $1.9 million, not the $54 million claimed.<br><br>
-![](assets/README-ab89da7d.png)<br>
 ![](assets/README-80484386.png)<br>
+![](assets/README-ab89da7d.png)<br>
 ![](assets/README-73b0c63d.png)<br>
 Are you surprised that they LIED again ?<br>
 You shouldn't be !<br>
 
-### The Dropil team constantly deleting and covering its tracks.<br>
+### The Dropil team covering its tracks.<br>
 
 On 28 feb 2020 the "trading bot" called Dex vanished from this world, like a ghost...<br>
 ![](assets/README-9bca86e8.png) <!-- .element height="50%" width="50%" --><br>
@@ -102,3 +102,9 @@ They are still trying to keep this fiasco up and running.<br>
 You will ask but how is that possible after so many evidence and facts ?<br>
 
 Even the SEC is currently investigating them and fighting them in court, how is this possible ?<br><br>
+
+### The Re-Branding and The Zuhex. The Master Plan!
+
+### The Manipulation !
+
+### Who is behind DROPIL
