@@ -7,8 +7,15 @@
 [SEC Charges Founders and Issuer for Conducting Fraudulent and Unregistered Ico](https://www.sec.gov/litigation/litreleases/2020/lr24804.htm)<br>
 [Case 8:20-cv-00793 Document 1 Filed 04/23/20](https://www.sec.gov/litigation/complaints/2020/comp24804.pdf)
 
-### The "trading bot" called Dex.<br>
+### The truth behind the "trading bot" called Dex and the **Dropil Team** .<br>
 
+`(Truth is most often used to mean being in accord with fact or reality)`
+
+#### Please read this before you do one the biggest mistakes in your life - **Invest in Dropil**.
+
+#### What is Dex in reality ?
+
+![](assets/README-450ec01a.png)<br>
 ![](assets/README-10ba05ef.png)<br>
 
 #### Dropil and its founders claimed that Dex would generate profits that would be distributed to investors as additional DROPs every 15 days.<br>
@@ -25,9 +32,9 @@
 <br>
 ![](assets/README-73b0c63d.png)
 
-##### You will not find this on twitter, because the Dropil team constantly is deleting and covering its tracks.)<br>
+##### The Dropil team constantly deleting and covering its tracks.<br>
 
-<br>
+They are still trying to keep this fiasco up and going. You will ask but how is that possible after so many evidence and facts ? Even the SEC is currently investigating them and fighting them in court, how is this possible ?<br>
 <br>
 On 28 feb 2020 the "trading bot" called Dex vanished from this world, like a ghost...<br>
 ![](assets/README-816c37a0.png) <!-- .element height="10%" width="10%" --> ![](assets/README-29f820cb.png) <!-- .element height="10%" width="10%" --> <br>
