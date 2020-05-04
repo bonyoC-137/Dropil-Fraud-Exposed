@@ -41,11 +41,11 @@ _( - Vision, hallucination, phantasm, fraud, sham, falsify, charlatan - )_<br>
 
 ![](assets/README-d5e0dda0.png)<br><br>
 ![](assets/README-24c87cad.png)<br>
-Dex was NEVER profitable! So there wasn't a "trading bot", everything about that they can create, code a trading bot was a lie !<br>
-You can find video clips of Zachary Matar on youtube presenting that Des is real, but this was just showing _Dropil team_ true nature.<br>
-(Do you think that the other trading bot Jade is real ? , think again... We will get there !)<br>
+Dex was NEVER profitable! So there wasn't a "trading bot", everything about, that Dropil can **create** or **code a trading bot was a lie !**<br>
+You can find video clips of Zachary Matar on YouTube presenting that Des was real, but this just shows _Dropil_ true nature ! The true nature of the people behind this.<br>
+(Do you think that the trading bot called **Jade** _is real ?_ , oh please, think again... We will get there !)<br>
 ![](assets/README-6a905309.png)<br>
-Dex NEVER traded on Binance ? wtf ?
+Dex NEVER traded on Binance !
 
 ### Dropil and its founders claimed that Dex would generate profits that would be distributed to investors as additional DROPs every 15 days.<br>
 
