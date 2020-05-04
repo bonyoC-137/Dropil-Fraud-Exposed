@@ -50,10 +50,10 @@ In reality, proven by facts - Dex NEVER traded on Binance.
 <br>
 <br>
 Aren't you already asking yourself, but how is this possible ?<br>
-For the people, lied since the beginning of this project will be hard to aknowledge the truth.<br>
+For the people, lied since the beginning of this sham project will be hard to aknowledge the truth.<br>
 <br>
 
-You have to get to know the Dropil team better to understand why is this very, very possible and absolutely real.<br>
+You have to get to know the Dropil team better to understand why this is very, very possible and absolutely real.<br>
 <br>
 
 ### Dropil and its founders claimed that Dex would generate profits that would be distributed to investors.<br>
