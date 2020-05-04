@@ -2,6 +2,8 @@
 
 # Securities and Exchange Commission v. Dropil, Inc., Jeremy McAlpine, Zachary Matar, and Patrick O'Hara
 
+![](assets/README-f7873337.png) vs ![](assets/README-63db68bd.png) ![](assets/README-7ebf97ad.png) ![](assets/README-b3d2deb4.png)
+
 # No. 8:20-cv-00793 (C.D. Cal., filed April 23, 2020)
 
 ## Links
@@ -30,7 +32,7 @@
 ![](assets/README-92feb876.png)<br><br>
 ![](assets/README-73b0c63d.png)
 
-##### The Dropil team constantly deleting and covering its tracks.<br>
+### The Dropil team constantly deleting and covering its tracks.<br>
 
 They are still trying to keep this fiasco up and going. You will ask but how is that possible after so many evidence and facts ? Even the SEC is currently investigating them and fighting them in court, how is this possible ?<br><br>
 On 28 feb 2020 the "trading bot" called Dex vanished from this world, like a ghost...<br>
