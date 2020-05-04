@@ -28,8 +28,8 @@ Which _50 millions dollars_ will fund "the trading bot" Dex.<br>
 ![](assets/README-73b0c63d.png)<br>
 <br>
 ![](assets/README-b9c645c3.png)<br>
-Dex would aggregate all the investors funds, giving massive advantage to trades ?<br>
-_Sufficient capital to allow maximum diversification_ ?<br>
+Dex would aggregate all the investors funds, giving massive advantage to trades ? On the exchange Binance ?<br>
+_Sufficient capital to allow maximum diversification_ ? the 50 mil $ from the ICO ?<br>
 Say whaaat ?<br>
 <br>
 <br>
