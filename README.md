@@ -83,13 +83,13 @@ You shouldn't be !<br>
 On 28 feb 2020 the "trading bot" called Dex vanished from this world, like a ghost...<br>
 ![](assets/README-9bca86e8.png) <!-- .element height="50%" width="50%" --><br>
 ![](assets/README-4f057429.png) <!-- .element height="50%" width="50%" --><br><br><br>
-But even now, if We login to the Dex portal.<br>
-Dex seems to be still active and actively trading something, somewhere!<br>
+But even now (4th May 2020), We can login to the Dex portal.<br>
+Dex seems to be still active and actively trading something! Trading Somewhere!<br>
 Even without any funds! Even without being on exchanges! Even without making any trades!<br>
 This is what we should call a real "Technology".<br>
+Dex just cant stop making profits ! 2.06% on Aggressive !<br>
 ![](assets/README-cee8cad3.png)<br>
-**Dex is a Unstoppable Force and Nobody can stop it !**<br>
-**Dex just keeps trading !**<br>
+**Dex is a Unstoppable Force and Nobody can stop it! Dex just keeps trading!**<br>
 <br>
 Even the SEC does not have jurisdiction over the trading that Dex is doing !<br><br>
 
