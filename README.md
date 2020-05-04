@@ -1,12 +1,12 @@
-# Please read this before you do one of the biggest mistakes in your life - to **Invest in Dropil**.
+# Please read this before you do one of the biggest mistakes in your life - to **_Invest in Dropil_**.
 
-# Securities and Exchange Commission v. Dropil, Inc., Jeremy McAlpine, Zachary Matar, and Patrick O'Hara
+## Securities and Exchange Commission v. Dropil, Inc., Jeremy McAlpine, Zachary Matar, and Patrick O'Hara
 
 ![](assets/README-f7873337.png) vs ![](assets/README-63db68bd.png) ![](assets/README-7ebf97ad.png) ![](assets/README-b3d2deb4.png)
 
-# No. 8:20-cv-00793 (C.D. Cal., filed April 23, 2020)
+## No. 8:20-cv-00793 (C.D. Cal., filed April 23, 2020)
 
-## Links
+### Links with facts and reality.
 
 [SEC Charges Founders and Issuer for Conducting Fraudulent and Unregistered Ico](https://www.sec.gov/litigation/litreleases/2020/lr24804.htm)<br>
 [Case 8:20-cv-00793 Document 1 Filed 04/23/20](https://www.sec.gov/litigation/complaints/2020/comp24804.pdf)
@@ -19,6 +19,7 @@
 
 ![](assets/README-450ec01a.png)<br>
 ![](assets/README-10ba05ef.png)<br>
+![](assets/README-3ced58a7.png)<br>
 
 #### What is Dex in reality ?<br>
 
