@@ -40,7 +40,12 @@ Dex was NEVER profitable! So there wasn't a "trading bot", everything about, tha
 You can find video clips of Zachary Matar on YouTube presenting that Des was real, but this just shows _Dropil_ true nature ! The true nature of the people behind this.<br>
 (Do you think that the trading bot called **Jade** _is real ?_ , oh please, think again... We will get there !)<br>
 ![](assets/README-6a905309.png)<br>
-In reality, proven by facts Dex NEVER traded on Binance.
+In reality, proven by facts - Dex NEVER traded on Binance.
+
+<br><br>
+Aren't you already asking yourself, but how is this possible ?<br><br>
+
+You have to get to know the Dropil team better to understand why is this very, very possible.<br><br>
 
 ### Dropil and its founders claimed that Dex would generate profits that would be distributed to investors as additional DROPs every 15 days.<br>
 
