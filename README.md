@@ -27,7 +27,5 @@
 
 <br><br>
 Poor Dex has vanished from this world, like a ghost...<br>
-![](assets/README-d4211be6.png) <!-- .element height="10%" width="10%" --> ![](assets/README-8b235280.png) <!-- .element height="10%" width="10%" -->
-
-<br>
+![](assets/README-d4211be6.png) <!-- .element height="10%" width="10%" --> ![](assets/README-8b235280.png) <!-- .element height="10%" width="10%" --><br><br>
 ![](assets/README-80484386.png) ![](assets/README-ab89da7d.png)<br>
