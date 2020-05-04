@@ -22,14 +22,16 @@ _( according to the white paper and why all the people invest in the platform )_
 ![](assets/README-450ec01a.png)<br>
 ![](assets/README-10ba05ef.png)<br>
 ![](assets/README-3ced58a7.png)<br><br>
-**the Dropil team stated that has collected _54 millions $_ after the ICO was over. Which _54 millions dollars_ will fund "the trading bot" Dex.**<br>
+the Dropil team stated that has collected _54 millions $_ after the ICO was over.<br>
+Which _54 millions dollars_ will fund "the trading bot" Dex.<br>
 ![](assets/README-73b0c63d.png)<br><br>
 ![](assets/README-b9c645c3.png)<br>
-![](assets/README-1e23556b.png)<br>
+**"sufficient capital to allow maximum diversification"** !!!<br>
+![](assets/README-1e23556b.png)<br><br><br>
 
-### What was Dex in reality ?<br>
+## What was Dex in reality ?<br>
 
-_(Vision, hallucination, phantasm, fraud, sham, falsify, charlatan...)_<br>
+_( - Vision, hallucination, phantasm, fraud, sham, falsify, charlatan - )_<br>
 
 ![](assets/README-d5e0dda0.png)<br>
 ![](assets/README-24c87cad.png)<br>
@@ -39,7 +41,7 @@ _(Vision, hallucination, phantasm, fraud, sham, falsify, charlatan...)_<br>
 
 ![](assets/README-163b669d.png)<br>
 <br>
-![](assets/README-e932bbc6.png)<br>
+![](assets/README-e932bbc6.png) Dex never made any profits by trading whatsoever !!!<br>
 ![](assets/README-398fc2d8.png)<br><br>
 <br>
 
