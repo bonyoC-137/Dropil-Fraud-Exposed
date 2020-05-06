@@ -21,20 +21,13 @@ _( according to the white paper and why all the people invest in the platform )_
 
 ![](assets/README-450ec01a.png)<br>
 ![](assets/README-10ba05ef.png)<br>
-![](assets/README-3ced58a7.png)<br>
-<br>
+![](assets/README-3ced58a7.png)<br><br>
 The Dropil team stated that had collected "_50 millions $_" from the ICO. Which "_50 millions dollars_" will fund "the trading bot" **Dex**.<br>
-![](assets/README-73b0c63d.png)<br>
-<br>
-<br>
+![](assets/README-73b0c63d.png)<br><br><br>
 Dex would aggregate all the investors funds, giving massive advantage to trades ? Trading on the Binance exchange ?<br>
 ![](assets/README-b9c645c3.png)<br>
-_Sufficient capital to allow maximum diversification_ ? the 50 mil $ from the ICO ?<br>
-<br>
-<br>
-![](assets/README-1e23556b.png)<br>
-<br>
-<br>
+_Sufficient capital to allow maximum diversification_ ? the 50 mil $ from the ICO ?<br><br><br>
+![](assets/README-1e23556b.png)<br><br><br>
 
 [The beginning of the Lie](https://www.youtube.com/watch?v=o3N_TaJikb4)
 
@@ -42,29 +35,34 @@ _Sufficient capital to allow maximum diversification_ ? the 50 mil $ from the IC
 
 _( - Vision, hallucination, phantasm, fraud, sham, falsify, charlatan - )_<br>
 
-![](assets/README-d5e0dda0.png)<br><br>
+![](assets/README-d5e0dda0.png)<br>
+<br>
 ![](assets/README-24c87cad.png)<br>
 Dex was NEVER profitable!<br>
-So there wasn't a "trading bot", and everything about that the Dropil team can **create** or **CODE** a _trading bot was a lie !_<br><br>
+So there wasn't a "trading bot", and everything about that the Dropil team can **create** or **CODE** a _trading bot was a lie !_<br>
+<br>
 You can find video clips of Zachary Matar on YouTube presenting Dex, pushing "the manipulation" that it was real.<br>
 But this just shows _Dropil_ true nature !<br>
-The true nature of the people behind this fraud.<br><br>
+The true nature of the people behind this fraud.<br>
+<br>
 ![](assets/README-6a905309.png)<br>
-In reality, and proven by facts (SEC) **Dex NEVER traded on Binance**.<br><br>
+In reality, and proven by facts (SEC) **Dex NEVER traded on Binance**.<br>
+<br>
 Aren't you already asking yourself, but, but how ALL OF THIS IS possible ?<br>
-For the people, being lied since the beginning of this sham project will be hard to acknowledge **the Truth**.<br>
-<br>
+For the people, being lied since the beginning of this sham project will be hard to acknowledge **the Truth**.<br><br>
 ![](assets/README-a3815128.png)<br>
-You have to get to know the Dropil team a bit better to understand why this is very, very possible and in fact **_absolutely real_**.<br>
-<br>
+You have to get to know the Dropil team a bit better to understand why this is very, very possible and in fact **_absolutely real_**.<br><br>
 
 ### Dropil and its founders claimed that Dex would **generate profits** that would be distributed to investors.<br>
 
-![](assets/README-163b669d.png)<br><br>
+![](assets/README-163b669d.png)<br>
+<br>
 ![](assets/README-e932bbc6.png)<br>
 ![](assets/README-398fc2d8.png)<br>
-Only with a single product ? This single product **_the trading Bot - Dex_** ! wow, Amazing !<br><br>
-And you should know already that no matter how many products they produce and **knowing** what they have produced already, any **_positive outcome_** is under series of **BIG Question marks _"????????"_**<br><br>
+Only with a single product ? This single product **_the trading Bot - Dex_** ! wow, Amazing !<br>
+<br>
+And you should know already that no matter how many products they produce and **knowing** what they have produced already, any **_positive outcome_** is under series of **BIG Question marks _"????????"_**<br>
+<br>
 
 Do you think that the "trading bot" **Jade** _is real ?_<br>
 ![](assets/README-56e1f390.png)<br>
@@ -77,7 +75,8 @@ Do you think that the "trading bot" **Jade** _is real ?_<br>
 
 ![](assets/README-34f89205.jpg)<br>
 ![](assets/README-92feb876.png)<br>
-In reality, the sale of DROPs during the ICO phase raised less than $1.9 million, not the $50 million claimed.<br><br>
+In reality, the sale of DROPs during the ICO phase raised less than $1.9 million, not the $50 million claimed.<br>
+<br>
 ![](assets/README-80484386.png)<br>
 ![](assets/README-ab89da7d.png)<br>
 ![](assets/README-73b0c63d.png)<br>
@@ -87,23 +86,25 @@ You shouldn't be !<br>
 ### The Dropil team covering its tracks.<br>
 
 On 28 feb 2020 the "trading bot" called Dex vanished from this world, like a ghost...<br>
-![](assets/README-9bca86e8.png) <!-- .element height="50%" width="50%" --><br>
-![](assets/README-4f057429.png) <!-- .element height="50%" width="50%" --><br><br><br>
+![](assets/README-9bca86e8.png) <!-- .element height="50%" width="50%" --> <br>
+![](assets/README-4f057429.png) <!-- .element height="50%" width="50%" --> <br>
+<br>
+<br>
 But even now (4th May 2020), We can login to the Dex portal.<br>
 Dex seems to be still active and actively trading something! Trading Somewhere, probably Binance!<br>
 Even without any funds! Even without being on exchanges! Even without making any trades!<br>
 This is what we should call a real "Technology".<br>
 Dex just cant stop making profits ! 2.06% on Aggressive !<br>
 ![](assets/README-cee8cad3.png)<br>
-**Dex is a Unstoppable Force and Nobody can stop it! Dex just keeps trading!**<br>
-<br>
-Even the SEC does not have jurisdiction over the trading that Dex is doing !<br><br>
-<br>
+**Dex is a Unstoppable Force and Nobody can stop it! Dex just keeps trading!**<br><br>
+Even the SEC does not have jurisdiction over the trading that Dex is doing !<br>
+<br><br>
 They are still trying to keep this fiasco up and running.<br>
 
 You will ask but how is that possible after so many evidence and facts ?<br>
 
-Even the SEC is currently investigating them and fighting them in court, how is this possible ?<br><br>
+Even the SEC is currently investigating them and fighting them in court, how is this possible ?<br>
+<br>
 
 ### Examples of the Dropil team dumping through the years.
 
@@ -111,7 +112,8 @@ Even the SEC is currently investigating them and fighting them in court, how is 
 
 More dump and more lies...<br>
 [0xb011ad4c57153f1b069be15170123958d3b3537e](https://etherscan.io/token/0x4672bad527107471cb5067a887f4656d585a8a31?a=0xb011ad4c57153f1b069be15170123958d3b3537e)<br>
-![](assets/README-8089f822.png)<br><br>
+![](assets/README-8089f822.png)<br>
+<br>
 [0x27bdc1a83b737c867f2fab623438f029f6670fd8](https://etherscan.io/token/0x4672bad527107471cb5067a887f4656d585a8a31?a=0x27bdc1a83b737c867f2fab623438f029f6670fd8)<br>
 ![](assets/README-b57ce092.png)<br>
 
@@ -150,7 +152,7 @@ Soon we will add more examples just like this<br>
 
 And so many weird posts in the group chat by people who never spoke before.<br>
 ![](assets/README-a3c0c737.png)<br>
-Gilly, The side of the Bride. At the moment of this post with 10 BTC you could buy the whole supply.
+Gilly, The side of the Bride. At the moment of this post with 10 BTC you could buy the whole supply.<br>
 
 ### Voltvex - the place you really do NOT want to host anything.
 
@@ -160,38 +162,29 @@ but only if the Dropil team allows it.<br>
 
 ### DROPIL team backstage (the famous California crypto criminal group)
 
-Meet the system admin! ![](assets/README-63db68bd.png)<br>
-<br>
-Meet the .net expert! ![](assets/README-7ebf97ad.png)<br>
-<br>
-The marketeer! There is no excuse, not telling the truth when he found about! He left end of 2019 ![](assets/README-b3d2deb4.png)<br>
-<br>
-Meet the system admin wifu and design specialist! ![](assets/README-4e34dcad.png)<br>
-<br>
+Meet the system admin! ![](assets/README-63db68bd.png)<br><br>
+Meet the .net expert! ![](assets/README-7ebf97ad.png)<br><br>
+The marketeer! There is no excuse, not telling the truth when he found about! He left end of 2019 ![](assets/README-b3d2deb4.png)<br><br>
+Meet the system admin wifu and design specialist! ![](assets/README-4e34dcad.png)<br><br>
 Meet the engine behind Dex. The backstage-accountant-engine. And maybe also the Zuhex engine ?<br>
 ![](assets/README-ddde3609.png)![](assets/README-58b90789.jpg)<br>
-Left 2019 ![](assets/README-0a9e97f6.png)<br>
-<br>
+Left 2019 ![](assets/README-0a9e97f6.png)<br><br>
 Here we can speculate what was the role of those guys, but we let you guess<br>
 ![](assets/README-70fce429.png)<br>
 ![](assets/README-0578b68a.png)<br>
-![](assets/README-c38e8be2.jpg)<br>
-<br>
+![](assets/README-c38e8be2.jpg)<br><br>
+And how many more were involved working or being part from this Fraudulent group, we can only guess.<br>
+There are no limits for this people.<br><br>
 **The Dropil core** ![](assets/README-1fcdfd22.jpg)<br>
 **Cheers for Dropil** for the positive outcome that awaits all the investors and the Dropil team!<br>
-![](assets/README-ccb81c58.png)<br>
-<br>
-<br>
+![](assets/README-ccb81c58.png)<br><br><br>
 
 ### What we have learned now ?<br>
 
 <br>
-Many paid costly, some of us very costly for this lesson :(<br>
-<br><br>
-No more trust in humans.<br>
+Many paid costly, some of us very costly for this lesson :(<br><br>
 <br>
-Trust only in Machines.<br>
-<br>
-<br>
+No more trust in humans.<br><br>
+Trust only in Machines.<br><br><br>
 To those people that have lost, some lost all their savings,<br>
 Please don't give up and Stay strong !<br>
