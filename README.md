@@ -28,7 +28,7 @@ Dex would aggregate all the investors funds, giving massive advantage to trades 
 ![](assets/README-b9c645c3.png)<br>
 _Sufficient capital to allow maximum diversification_ ? the 50 mil $ from the ICO ?<br><br><br>
 ![](assets/README-1e23556b.png)<br><br><br>
-
+![](assets/README-d9781567.png)<br>
 [The beginning of the Lie](https://www.youtube.com/watch?v=o3N_TaJikb4)
 
 ## What was Dex in reality ?<br>
@@ -184,6 +184,7 @@ There is no limit to that. Not for the Dropil team.<br>
 Learn from them how to keep the hype going, no matter if you sued by the SEC for fraud, no matter you have provided fabricated documents, lied to tens of thousands of people, every day. There is no shame, it seems that there is no fear even.<br>
 
 During all that time so many other exchanges asked for Listing the DROP token to their platform, publicly inside the group chat.<br>
+But probably and surly all those accounts where Fake.<br>
 ![](assets/README-d3ff972a.png)<br>
 Who the hell would want to list DROPIL, when DROPIL is accused for Fraud, For Fabricating financial documents, and for Lies under oath ?<br>
 As you already noticed, this account was created just the same date and time when he posted a exchange listing request - **Leroy Strickland | bitrue**.<br>
@@ -195,7 +196,20 @@ And so many weird posts in the group chat by people who never spoke before.<br>
 Gilly, The side of the Bride. At the moment of this post with 10 BTC you could buy the whole supply.<br>
 
 <br>
-If you dare ask unpleasant questions or dare questioning their trustworthiness or genuineness, You will be muted, banned and kicked by the Dropil Telegram Admins.<br>
+If you dare ask unpleasant questions or dare questioning their trustworthiness or genuineness, You will be muted, banned and kicked by the Dropil CEOs or the Dropil Admins.<br>
+![](assets/README-c8964b89.jpg)
+
+#### Did you witnessed the announcement of their latest app Bot?
+
+![](assets/README-a3f622fe.png)<br>
+
+First they delay it for a they<br>
+
+After that for the next week<br>
+
+And the latest was "That the new app depends on the New Chain"<br>
+
+![](assets/README-165f9399.png)<br>
 
 ### Voltvex - the place you really do NOT want to host anything.
 
@@ -211,11 +225,11 @@ The marketeer! There is no excuse, not telling the truth when he found about! He
 Meet the system admin wifu and design (home)specialist! ![](assets/README-4e34dcad.png)<br><br>
 Meet the engine behind Dex. The backstage-accountant-engine. And maybe also the Zuhex engine ?<br>
 ![](assets/README-ddde3609.png)![](assets/README-58b90789.jpg)<br>
-Left 2019 ![](assets/README-0a9e97f6.png)<br><br>
+![](assets/README-04b193e8.png) ![](assets/README-0a9e97f6.png)<br><br>
 Here we can speculate what was the role of those guys, but we let you guess<br>
 ![](assets/README-70fce429.png)<br>
 ![](assets/README-0578b68a.png)<br>
-![](assets/README-c38e8be2.jpg)<br><br>
+![](assets/README-c38e8be2.jpg) or ![](assets/README-359b8bed.jpg)<br><br>
 And how many more were involved working or being part from this Fraudulent group, we can only guess.<br>
 There are no limits for this people.<br><br>
 **The Dropil core** ![](assets/README-1fcdfd22.jpg)<br>
