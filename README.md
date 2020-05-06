@@ -209,11 +209,13 @@ If you dare ask unpleasant questions or dare questioning their trustworthiness o
 
 ![](assets/README-a3f622fe.png)<br>
 
-First they delay it for a they<br>
+First they delay it for a day<br>
 
 After that for the next week<br>
 
-And the latest was "That the new app depends on the New Chain"<br>
+After for the end of the next week<br>
+
+And the latest was _"That the new app depends on the New Chain"_<br>
 
 ![](assets/README-165f9399.png)<br>
 
