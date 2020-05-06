@@ -45,18 +45,10 @@ You can find video clips of Zachary Matar on YouTube presenting Dex, pushing "th
 But this just shows _Dropil_ true nature !<br>
 The true nature of the people behind this fraud.<br>
 <br>
-
-Do you think that the trading bot called **Jade** _is real ?_<br>
-![](assets/README-56e1f390.png)<br>
-You would be surprised !<br>
-
-<br><br>
-<br>
 ![](assets/README-6a905309.png)<br>
-In reality, and proven by facts - **Dex NEVER traded on Binance**.<br>
+In reality, and proven by facts (SEC) **Dex NEVER traded on Binance**.<br>
 <br>
 Aren't you already asking yourself, but, but how ALL OF THIS IS possible ?<br>
-<br>
 For the people, being lied since the beginning of this sham project will be hard to acknowledge **the Truth**.<br><br>
 
 You have to get to know the Dropil team a bit better to understand why this is very, very possible and in fact **_absolutely real_**.<br><br>
@@ -71,6 +63,9 @@ Only with a single product ? This single product **_the trading Bot - Dex_** ! w
 <br>
 And you should know already that no matter how many products they produce and **knowing** what they have produced already, any **_positive outcome_** is under series of **BIG Question marks _"????????"_**<br>
 <br>
+
+Do you think that the "trading bot" **Jade** _is real ?_<br>
+![](assets/README-56e1f390.png)<br>
 
 ### Jade Exposed
 
