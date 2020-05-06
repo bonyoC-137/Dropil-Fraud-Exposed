@@ -229,11 +229,11 @@ truwho.com<br>
 Meet the system admin! ![](assets/README-63db68bd.png)<br><br>
 Meet the .net expert! ![](assets/README-7ebf97ad.png)<br><br>
 The marketeer! There is no excuse, not telling the truth when he found about! He left end of 2019 ![](assets/README-b3d2deb4.png)<br><br>
-Meet the system admin wifu and design (home)specialist! ![](assets/README-4e34dcad.png)<br><br>
-Meet the engine behind Dex. The backstage-accountant-engine. And maybe also the Zuhex engine ?<br>
+Meet the system admin wifu and (home)design specialist! ![](assets/README-4e34dcad.png)<br><br>
+Meet the engine behind the Dex. The backstage-accountant-engine. And maybe also the Zuhex engine ?<br>
 ![](assets/README-ddde3609.png)![](assets/README-58b90789.jpg)<br>
-![](assets/README-04b193e8.png) ![](assets/README-0a9e97f6.png)<br><br>
-Here we can speculate what was the role of those guys, but we let you guess<br>
+![](assets/README-0a9e97f6.png)![](assets/README-04b193e8.png)<br><br>
+Here we can only speculate what was the role of this guys, but we can also guess...<br>
 ![](assets/README-70fce429.png)<br>
 ![](assets/README-0578b68a.png)<br>
 ![](assets/README-c38e8be2.jpg) = ![](assets/README-359b8bed.jpg)<br>
