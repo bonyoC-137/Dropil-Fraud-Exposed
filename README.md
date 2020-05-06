@@ -222,6 +222,8 @@ There are no limits for this people.<br>
 ![](assets/README-ccb81c58.png)<br>
 <br>
 <br>
+Shame for the TheCryptoLawyers[dot]com from California for represent Dropil.<br>
+Shame on you guys...<br>
 
 ### What we have learned now ?<br>
 
