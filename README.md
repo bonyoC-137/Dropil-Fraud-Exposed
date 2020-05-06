@@ -127,7 +127,7 @@ Even the SEC is currently investigating them and fighting them in court, how is 
 
 ### Examples of the Dropil team dumping through the years.
 
-[Simple proof and investigation](https://github.com/bonyoC-137/Dropil-ICO-fraud-exposed)<br>
+[Simple proof and investigation by Oleg](https://github.com/bonyoC-137/Dropil-ICO-fraud-exposed)<br>
 
 More dump and more lies...<br>
 [0xb011ad4c57153f1b069be15170123958d3b3537e](https://etherscan.io/token/0x4672bad527107471cb5067a887f4656d585a8a31?a=0xb011ad4c57153f1b069be15170123958d3b3537e)<br>
