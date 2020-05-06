@@ -54,10 +54,10 @@ But this just shows _Dropil_ true nature !<br>
 The true nature of the people behind this fraud.<br>
 <br>
 
-Aren't you already asking yourself, but, but how ALL OF THIS IS possible ?<br>
-For the people, being lied since the beginning of this sham will be hard to acknowledge **the Truth**.<br><br>
+<br>
 ![](assets/README-a3815128.png)<br>
 You have to get to know the Dropil team a bit better to understand why this is very, very possible and in fact **_absolutely real_**.<br><br>
+For the people, being lied since the beginning of this sham will be hard to acknowledge **the Truth**.<br>
 
 ### Dropil and its founders claimed that Dex would **generate profits** that would be distributed to investors.<br>
 
@@ -197,7 +197,7 @@ Gilly, The side of the Bride. At the moment of this post with 10 BTC you could b
 
 <br>
 If you dare ask unpleasant questions or dare questioning their trustworthiness or genuineness, You will be muted, banned and kicked by the Dropil CEOs or the Dropil Admins.<br>
-![](assets/README-c8964b89.jpg)
+![](assets/README-c8964b89.jpg)<br>
 
 #### Did you witnessed the announcement of their latest app Bot?
 
@@ -229,7 +229,8 @@ Meet the engine behind Dex. The backstage-accountant-engine. And maybe also the 
 Here we can speculate what was the role of those guys, but we let you guess<br>
 ![](assets/README-70fce429.png)<br>
 ![](assets/README-0578b68a.png)<br>
-![](assets/README-c38e8be2.jpg) or ![](assets/README-359b8bed.jpg)<br><br>
+![](assets/README-c38e8be2.jpg) = ![](assets/README-359b8bed.jpg)<br>
+so who is that guy and what does it mean Risk manager i really dont know.<br><br>
 And how many more were involved working or being part from this Fraudulent group, we can only guess.<br>
 There are no limits for this people.<br><br>
 **The Dropil core** ![](assets/README-1fcdfd22.jpg)<br>
