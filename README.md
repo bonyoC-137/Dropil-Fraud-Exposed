@@ -43,10 +43,12 @@ _Sufficient capital to allow maximum diversification_ ? the 50 mil $ from the IC
 _( - Vision, hallucination, phantasm, fraud, sham, falsify, charlatan - )_<br>
 
 Meet Dex heart - ![](assets/README-55e035c8.jpg)<br>
+<br>
 ![](assets/README-d5e0dda0.png)<br><br>
 ![](assets/README-24c87cad.png)<br>
-Dex was NEVER profitable!<br>
-So there wasn't a "trading bot", and everything about that the Dropil team can **create** or **CODE** a _trading bot was a lie !_<br><br>
+**Dex was NEVER profitable!**<br>
+"Are you shitin me ? But I as getting profits every 15 days ?"<br><br>
+So the TRUE is that, there wasn't a "trading bot", there wasn't Dex, and everything about that "the Dropil team" can **create** or **CODE** a _trading bot was a LIE !_<br><br>
 You can find video clips of Zachary Matar on YouTube presenting Dex, pushing "the manipulation" that it was real.<br>
 But this just shows _Dropil_ true nature !<br>
 The true nature of the people behind this fraud.<br><br>
