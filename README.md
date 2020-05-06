@@ -101,16 +101,16 @@ In fact can you guess where are all the unSOLD tokens ?<br>
 Let admit, they have balls, lying to the SEC...<br>
 <br>
 ![](assets/README-6dec564e.png)<br>
-How can you be so naive and think that this would work ? Please some explain to me...<br>
+How can you be so naive and think that this would work ? Please someone, anyone explain this to me...<br>
 ![](assets/README-9d73c19b.png)<br>
 <br>
 ![](assets/README-af274472.png)<br>
 You can watch the interview and see how you should not Lie. A video that was very well hidden. Thanks to Google and the right to be forgotten... [The beginning of the Lie](https://www.youtube.com/watch?v=o3N_TaJikb4)<br>
 
 On 28 feb 2020 the "trading bot" called Dex vanished from this world, like a ghost...<br>
-![](assets/README-9bca86e8.png) <!-- .element height="50%" width="50%" --><br>
-and its gone...<br>
-![](assets/README-4f057429.png) <!-- .element height="50%" width="50%" --><br><br><br>
+![](assets/README-9bca86e8.png) <!-- .element height="30%" width="30%" --><br>
+![](assets/README-9cd37791.png)<br>
+![](assets/README-4f057429.png) <!-- .element height="30%" width="30%" --><br><br><br>
 But even now (4th May 2020), We can login to the Dex portal.<br>
 Dex seems to be still active and actively trading something! Trading Somewhere, probably Binance!<br>
 Even without any funds! Even without being on exchanges! Even without making any trades!<br>
