@@ -160,11 +160,11 @@ but only if the Dropil team allows it.<br>
 
 ### DROPIL Backstage
 
-Meet the system admin. ![](assets/README-63db68bd.png)<br>
+Meet the system admin! ![](assets/README-63db68bd.png)<br>
 <br>
-Meet the .net expert. ![](assets/README-7ebf97ad.png)<br>
+Meet the .net expert! ![](assets/README-7ebf97ad.png)<br>
 <br>
-![](assets/README-b3d2deb4.png)<br>
+Meet the system admin wifu and design specialist! ![](assets/README-b3d2deb4.png)<br>
 <br>
 ![](assets/README-4e34dcad.png)<br>
 <br>
@@ -176,6 +176,12 @@ Meet the engine behind Dex. The backstage-accountant-engine.<br>
 ![](assets/README-c38e8be2.jpg)<br>
 ![](assets/README-1fcdfd22.jpg)<br>
 ![](assets/README-ccb81c58.png)<br>
-
+<br>
+<br>
+What we have learned now.<br>
+We paid costly, some of us very costly for this lesson :(<br>
 No more trust in humans.<br>
 Trust only the machines.<br>
+
+To those people that have lost, some lost all their savings,<br>
+Please don't give up and Stay strong !<br>
