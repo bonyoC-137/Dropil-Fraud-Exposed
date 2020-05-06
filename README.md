@@ -134,7 +134,19 @@ An exchange which backend is just a Excel Spreadsheet. The new version of Dex ca
 
 ### The Manipulation !
 
-![](assets/README-a3c0c737.png)
+There is no limit to that. Not for the Dropil team.<br>
+
+Learn from them how to keep the hype going, no matter if you sued by the SEC for fraud, no matter you have provided fabricated documents, lied to hundred of thousands of people, every day. There is no shame, it seems that there is no fear even.<br>
+
+During all that time so many other exchanges asked for Listing the DROP token to their platform,<br>
+publicly inside the group chat.<br>
+![](assets/README-d3ff972a.png)<br>
+As can noticed, this account was created just the same date and time he posted a exchange listing request - **Leroy Strickland**.<br>
+Soon we will add more examples just like this<br>
+
+And so many weird posts in the group chat by people who never spoke before.<br>
+![](assets/README-a3c0c737.png)<br>
+The side of the Bride.
 
 ### DROPIL Backstage
 
