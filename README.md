@@ -42,6 +42,7 @@ _Sufficient capital to allow maximum diversification_ ? the 50 mil $ from the IC
 
 _( - Vision, hallucination, phantasm, fraud, sham, falsify, charlatan - )_<br>
 
+![](assets/README-55e035c8.jpg)<br>
 ![](assets/README-d5e0dda0.png)<br><br>
 ![](assets/README-24c87cad.png)<br>
 Dex was NEVER profitable!<br>
