@@ -164,9 +164,9 @@ but only if the Dropil team allows it.<br>
 
 Meet the system admin! ![](assets/README-63db68bd.png)<br><br>
 Meet the .net expert! ![](assets/README-7ebf97ad.png)<br><br>
-The marketeer! There is no excuse for him, not telling the truth when he found ![](assets/README-b3d2deb4.png)<br><br>
+The marketeer! There is no excuse, not telling the truth when he found about! ![](assets/README-b3d2deb4.png)<br><br>
 Meet the system admin wifu and design specialist! ![](assets/README-4e34dcad.png)<br><br>
-Meet the engine behind Dex. The backstage-accountant-engine.<br>
+Meet the engine behind Dex. The backstage-accountant-engine. And maybe also the Zuhex engine ?<br>
 ![](assets/README-ddde3609.png)![](assets/README-58b90789.jpg)<br>
 ![](assets/README-0a9e97f6.png)<br>
 ![](assets/README-70fce429.png)<br>
