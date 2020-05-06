@@ -158,7 +158,7 @@ Or more correct to say is:<br>
 **The place where you can host your Fraud project.**<br>
 but only if the Dropil team allows it.<br>
 
-### DROPIL Backstage
+### DROPIL team backstage (the famous California crypto criminal group)
 
 Meet the system admin! ![](assets/README-63db68bd.png)<br>
 <br>
@@ -179,9 +179,13 @@ Meet the engine behind Dex. The backstage-accountant-engine.<br>
 <br>
 <br>
 What we have learned now.<br>
-We paid costly, some of us very costly for this lesson :(<br>
+<br>
+We many paid costly, some of us very costly for this lesson :(<br>
+<br><br>
 No more trust in humans.<br>
-Trust only the machines.<br>
-
+<br>
+Trust only in Machines.<br>
+<br>
+<br>
 To those people that have lost, some lost all their savings,<br>
 Please don't give up and Stay strong !<br>
