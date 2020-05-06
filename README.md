@@ -124,8 +124,13 @@ More dump and more lies...<br>
 
 ### The Re-Branding and The Zuhex.
 
+You can see when this domain was registered.<br>
 ![](assets/README-9570d356.jpg)<br>
+When was announced<br>
 ![](assets/README-f381f71f.jpg)<br>
+
+And what they have produced ? Another simple Lie.<br>
+An exchange which backend is just a Excel Spreadsheet. The new version of Dex called Zuhex.<br>
 
 ### The Manipulation !
 
@@ -143,4 +148,4 @@ More dump and more lies...<br>
 ![](assets/README-0578b68a.png)<br>
 ![](assets/README-c38e8be2.jpg)<br>
 ![](assets/README-1fcdfd22.jpg)<br>
-![](assets/README-ccb81c58.png)
+![](assets/README-ccb81c58.png)<br>
