@@ -129,7 +129,9 @@ When was announced<br>
 ![](assets/README-f381f71f.jpg)<br>
 
 And what they have produced ? Another simple Lie.<br>
-An exchange which backend is just a Excel Spreadsheet. The new version of Dex called Zuhex.<br>
+An exchange which back-engine is just another Excel Spreadsheet. Saying another because this is The new version of Dex, now Zuhex.<br>
+`[D]ex`<br>
+`[zuh]ex`<br>
 
 ### The Manipulation !
 
