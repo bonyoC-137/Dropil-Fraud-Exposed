@@ -147,6 +147,22 @@ Since the announcment of Zuhex on twitter, 8 or more months ago ? Some people st
 
 "Everything is build on HOPE", sadly even the fraud.<br>
 
+### TRUWHO
+
+Another project by the Dropil team.<br>
+
+Where the money from the ICO had again vanished...<br>
+
+You can join the Telegram channel and watch all the request for a refund by so many people.<br>
+
+Begging for a refund...<br>
+
+Sadly that will probably never happen.<br>
+
+And more important thing is that TRUWHO.com even a failed project, **_has collected tens of thousands peoples IDs._**
+
+Guess Dropil.com where is going ?<br>
+
 ### The Manipulation !
 
 There is no limit to that. Not for the Dropil team.<br>
