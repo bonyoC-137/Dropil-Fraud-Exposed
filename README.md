@@ -109,7 +109,9 @@ You will ask but how is that possible after so many evidence and facts ?<br>
 
 Even the SEC is currently investigating them and fighting them in court, how is this possible ?<br><br>
 
-### Examples of the Dropil team selling though the years.
+### Examples of the Dropil team selling through the years.
+
+[Oleg's report](https://github.com/bonyoC-137/Dropil-ICO-fraud-exposed)
 
 ### The idea behind "the buyback" - money(drops) laundering
 
