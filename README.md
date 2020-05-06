@@ -108,15 +108,14 @@ Even the SEC is currently investigating them and fighting them in court, how is 
 
 ### Examples of the Dropil team dumping through the years.
 
-[Simple proof and investigation](https://github.com/bonyoC-137/Dropil-ICO-fraud-exposed)
+[Simple proof and investigation](https://github.com/bonyoC-137/Dropil-ICO-fraud-exposed)<br>
 
-<br>
 More dump and more lies...<br>
-<https://etherscan.io/token/0x4672bad527107471cb5067a887f4656d585a8a31?a=0xb011ad4c57153f1b069be15170123958d3b3537e><br>
+[0xb011ad4c57153f1b069be15170123958d3b3537e](https://etherscan.io/token/0x4672bad527107471cb5067a887f4656d585a8a31?a=0xb011ad4c57153f1b069be15170123958d3b3537e)<br>
 ![](assets/README-8089f822.png)<br>
 <br>
-<https://etherscan.io/token/0x4672bad527107471cb5067a887f4656d585a8a31?a=0x27bdc1a83b737c867f2fab623438f029f6670fd8><br>
-![](assets/README-b57ce092.png)
+[0x27bdc1a83b737c867f2fab623438f029f6670fd8](https://etherscan.io/token/0x4672bad527107471cb5067a887f4656d585a8a31?a=0x27bdc1a83b737c867f2fab623438f029f6670fd8)<br>
+![](assets/README-b57ce092.png)<br>
 
 ### The idea behind "the buyback" - or the **_money laundering_**<br>
 
@@ -138,8 +137,7 @@ There is no limit to that. Not for the Dropil team.<br>
 
 Learn from them how to keep the hype going, no matter if you sued by the SEC for fraud, no matter you have provided fabricated documents, lied to hundred of thousands of people, every day. There is no shame, it seems that there is no fear even.<br>
 
-During all that time so many other exchanges asked for Listing the DROP token to their platform,<br>
-publicly inside the group chat.<br>
+During all that time so many other exchanges asked for Listing the DROP token to their platform, publicly inside the group chat.<br>
 ![](assets/README-d3ff972a.png)<br>
 As can noticed, this account was created just the same date and time he posted a exchange listing request - **Leroy Strickland**.<br>
 Soon we will add more examples just like this<br>
