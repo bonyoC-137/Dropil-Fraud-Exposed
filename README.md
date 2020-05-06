@@ -176,7 +176,9 @@ Here we can speculate what was the role of those guys, but we let you guess<br>
 ![](assets/README-70fce429.png)<br>
 ![](assets/README-0578b68a.png)<br>
 ![](assets/README-c38e8be2.jpg)<br>
-![](assets/README-1fcdfd22.jpg)<br>
+<br>
+**The Dropil core** ![](assets/README-1fcdfd22.jpg)<br>
+**Cheers for Dropil** for the positive outcome that awaits all the investors and the Dropil team!<br>
 ![](assets/README-ccb81c58.png)<br>
 <br>
 <br>
