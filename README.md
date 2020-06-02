@@ -1,6 +1,6 @@
 ## Just a lesson on how you can accomplish Fraud and Money Laundering, spend few years in Jail and live the rest of your life like a king.
 
-## The actors in this lesson are real people.
+## The actors in this story are real people.
 
 ## Securities and Exchange Commission v. Dropil, Inc., Jeremy McAlpine, Zachary Matar, and Patrick O'Hara
 
