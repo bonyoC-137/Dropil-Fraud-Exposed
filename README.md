@@ -33,6 +33,7 @@ Dex would aggregate all the investors funds, giving massive advantage to trades 
 _Sufficient capital to allow maximum diversification_ ? the 50 mil $ from the ICO ?<br><br><br>
 ![](assets/README-1e23556b.png)<br><br><br>
 [The beginning of the Lie](https://www.youtube.com/watch?v=o3N_TaJikb4) (click) - Watch this youtube interview.<br>
+For making this Fraud more real, you need to have a tatto !<br>
 ![](assets/README-d9781567.png)<br>
 
 ## What was Dex in reality ?<br>
