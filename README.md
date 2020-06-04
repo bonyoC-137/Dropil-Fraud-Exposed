@@ -1,8 +1,12 @@
-# Please read this before you do one of the biggest mistakes in your life - **_Invest in Dropil_**.
+## Just a lesson on how you can accomplish Fraud and Money Laundering.
+
+## Please read this before you do one of the biggest mistakes in your life - **_Invest in Dropil_**.
 
 ## Securities and Exchange Commission v. Dropil, Inc., Jeremy McAlpine, Zachary Matar, and Patrick O'Hara
 
 ![](assets/README-f7873337.png) vs ![](assets/README-63db68bd.png) ![](assets/README-7ebf97ad.png) ![](assets/README-b3d2deb4.png)
+
+## This is the first version of this Document, for the second reworked version, please follow this LINK.
 
 ## No. 8:20-cv-00793 (C.D. Cal., filed April 23, 2020)
 
