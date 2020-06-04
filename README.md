@@ -32,7 +32,7 @@ Dex would aggregate all the investors funds, giving massive advantage to trades 
 ![](assets/README-b9c645c3.png)<br>
 _Sufficient capital to allow maximum diversification_ ? the 50 mil $ from the ICO ?<br><br><br>
 ![](assets/README-1e23556b.png)<br><br><br>
-[The beginning of the Lie](https://www.youtube.com/watch?v=o3N_TaJikb4)(click) - Watch this youtube interview.<br>
+[The beginning of the Lie](https://www.youtube.com/watch?v=o3N_TaJikb4) (click) - Watch this youtube interview.<br>
 ![](assets/README-d9781567.png)<br>
 
 ## What was Dex in reality ?<br>
